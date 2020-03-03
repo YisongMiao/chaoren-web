@@ -4,7 +4,7 @@
 
 A big 'thank you' from Yisong to Chaoren!!
 
-Thank you for your lovely home🏠 and warm heart ❤️!!
+Thank you for your lovely home 🏠 and warm heart ❤️!!
 
 I will always remember the happiness we had together at 2020 Feb!!!
 
